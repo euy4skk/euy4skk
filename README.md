@@ -4,4 +4,4 @@
 -Estou trabalhando em projetos **JavaScript** e **HTML**;
 -Para duvidas ou contato me envie um email _00001088941424@al.educacao.sp.gov.br_ 💻💌;
 
-![](https://tenor.com/pt-BR/search/tales-gifs)
+![]([https://tenor.com/pt-BR/search/tales-gifs](https://media1.tenor.com/m/ZkYaEWvMXHIAAAAC/hug-tales.gif))
